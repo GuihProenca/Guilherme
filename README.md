@@ -1,1 +1,1 @@
-# Me chamo guilherm, tenho 17 anos e pretendo trabalho como profissional na área de tecnologia, pois sou admirado pela forma que a tecnologia nos fornece informações para "tudo" o que precisamos, gostaria de poder exercer esse cargo nessa área.
+# Me chamo guilherm, tenho 17 anos e pretendo trabalho como profissional na área de tecnologia, pois sou admirado pela forma que a tecnologia nos fornece informações para "tudo" o que precisamos, gostaria de poder exercer essa carreira profissional nessa área.
